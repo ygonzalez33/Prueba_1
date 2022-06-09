@@ -11,4 +11,4 @@ ingeniera ambiental y tu?
 
 Soy economista, para servirte! 
 
-De que U?
+De qué universidad?
